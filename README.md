@@ -1,1 +1,1 @@
-# U-Of-A-Bootcamp-1
+# U-Of-A-Bootcamp-Study-Guide
